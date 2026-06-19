@@ -1,2 +1,2 @@
 Frederick Moschkowich
-fredmosc.dev
+fredmosc.dev (@fredmosdev)
